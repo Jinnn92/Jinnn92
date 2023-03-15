@@ -1,16 +1,11 @@
-### Hi there 👋
-
-<!--
-**Jinnn92/Jinnn92** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# jefvneo
+## hchjf
+### bccdjb
+**njwcniq**xkwmocm
+*jdnjvn*fvhi
+* cendn
+  * `code`
+[jvwkjva](https://github.com/Jinnn92/Jinnn92/edit/main/README.md)
+> fvenjgknmq3k
+- vmkdamf
+  - ncjkvmkoem
